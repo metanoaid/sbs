@@ -1,1 +1,1 @@
-Seawind.ru
+swsm.ru
